@@ -1,1 +1,1 @@
-# 1988-google-homepage<img width="959" alt="Ekran Alıntısı" src="https://github.com/AhmetEmreOral/1988-google-homepage/assets/120414456/3943c0c2-ee0a-4942-9aaa-b001a0a8cb58">
+<img width="959" alt="Ekran Alıntısı" src="https://github.com/AhmetEmreOral/1988-google-homepage/assets/120414456/7e02e32e-3c0c-4cf3-bc6f-ebdd38e4af34">
